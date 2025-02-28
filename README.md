@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- Health Economist
+- Currently working on my PhD at the University of Oregon
+    - 3rd Year
+    - Measure 110 Impacts
+    - Treatment Centers and Mortality
+    - Theory of Rational Addiction
+- How to reach me: dhall7@uoregon.edu
+  - https://sites.google.com/view/davidhallphd/bio
+- Pronouns: He/Him/His
+- 🐱🐯 Two Cats 🐈🐈‍⬛
+- Pokemon & Golf
